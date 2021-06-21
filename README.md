@@ -2,7 +2,7 @@
 翻红馆高级邀请码【221995】
 
 京东密令，淘密令申请渠道，
-[img]https://z3.ax1x.com/2021/06/21/RkvbtA.md.jpg[/img]
+https://z3.ax1x.com/2021/06/21/RkvbtA.jpg
 达人pick计划
 什么是达人pick计划｜内容达人变现首选平台
 
